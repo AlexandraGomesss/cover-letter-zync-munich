@@ -64,4 +64,5 @@ LinkedIn: https://www.linkedin.com/in/alexgfullstack/
 📫 Contact
 
 Email: gomes.marisa.alexa@gmail.com
+
 Phone: +351 927 770 218
