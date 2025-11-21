@@ -44,25 +44,25 @@ I’m fully committed and excited to move to Munich if selected.
 - Strong sense of responsibility — important for projects that require security clearance  
 
 
-🌍 Relocation to Munich
+## 🌍 Relocation to Munich
 
-I’m fully available for relocation and can move quickly if selected.
+I’m fully available for relocation and can move quickly if selected.  
 
 Relocating to a strong tech hub like Munich is one of my career goals, and I’m ready to integrate into the team and adapt to the on-site environment.
 
+---
+## 📎 Relevant Links
 
-📎 Relevant Links
+- **CV (PDF):** https://drive.google.com/file/d/1IqTbbLOPl3BAPZ_Ow8wVS8SNfR1F6cJh/view?usp=drive_link
 
-CV (PDF): https://drive.google.com/file/d/1IqTbbLOPl3BAPZ_Ow8wVS8SNfR1F6cJh/view?usp=drive_link
+- **Portfolio:** https://lnkd.in/dRvYFYv7
 
-Portfolio: https://lnkd.in/dRvYFYv7
+- **GitHub:** https://github.com/AlexandraGomesss
+  
+- **LinkedIn:**  https://www.linkedin.com/in/alexgfullstack/
 
-GitHub: https://github.com/AlexandraGomesss
 
-LinkedIn: https://www.linkedin.com/in/alexgfullstack/
+## 📫 Contact
 
-📫 Contact
-
-Email: gomes.marisa.alexa@gmail.com
-
-Phone: +351 927 770 218
+- **Email:** gomes.marisa.alexa@gmail.com  
+- **Phone:** +351 927 770 218 
