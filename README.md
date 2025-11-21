@@ -53,7 +53,7 @@ Relocating to a strong tech hub like Munich is one of my career goals, and I’m
 
 📎 Relevant Links
 
-CV (PDF): [My CV (PDF)] https://drive.google.com/file/d/1IqTbbLOPl3BAPZ_Ow8wVS8SNfR1F6cJh/view?usp=drive_link
+CV (PDF): https://drive.google.com/file/d/1IqTbbLOPl3BAPZ_Ow8wVS8SNfR1F6cJh/view?usp=drive_link
 
 Portfolio: https://lnkd.in/dRvYFYv7
 
